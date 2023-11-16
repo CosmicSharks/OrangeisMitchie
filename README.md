@@ -1,6 +1,6 @@
 - 🔌 Hello, I’m Toonz / Mitchell / Mitch
 - 🍊 I’m interested in Marvel, mcyt, vtubers, horror movies/ games, and true crime!
-- 💥 I’m currently hyperfixing on Spiderverse movies and Omori.
+- 💥 I’m currently hyperfixing on genshin impact .
 - 💤 I’m a shark if you didn't know !!
   
 
