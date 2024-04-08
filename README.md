@@ -1,7 +1,7 @@
-- 🔌 Hi !!, I’m Toonz / Mitchell
-- 🍊 I'm interested in Marvel, mcyt, vtubers, horror movies/ games, and true crime!
-- 💥 I’m currently hyperfixing on ???..
-- 💤 I’m a shark if you didn't know !!
+- 💉 Hi !!, I’m Augustine / Mitchell
+- 🍊 I'm interested in Marvel, mcyt, Omori, horror movies/ games, and true crime!
+- 🎀 I’m currently hyperfixing on N/A !!
+- 💤 I refer to myself as a shark quite often ^^; !!
   
 
 <!---
