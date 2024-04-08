@@ -1,5 +1,5 @@
 - 💉 Hi !!, I’m Augustine / Mitchell
-- 🍊 I'm interested in Marvel, mcyt, Omori, horror movies/ games, and true crime!
+- 🍊 I'm interested in Marvel, mcyt, horror movies/ games, true crime, Omori, HSR, etc !!
 - 🎀 I’m currently hyperfixing on N/A !!
 - 💤 I refer to myself as a shark quite often ^^; !!
   
